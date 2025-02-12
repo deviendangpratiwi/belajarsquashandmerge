@@ -5,3 +5,4 @@ ayoo cobainnn
 
 *iyaiya*
 *emang seruu tau*
+*betul betul*
