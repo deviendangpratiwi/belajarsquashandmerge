@@ -1,1 +1,2 @@
 # belajarsquashandmerge
+hai aku belajar
